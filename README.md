@@ -1,1 +1,1 @@
-Blogtemplate for Blogging
+Gedanken und Philosophie über Psychologie
