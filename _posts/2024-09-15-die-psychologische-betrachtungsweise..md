@@ -1,3 +1,4 @@
+
 ---
 title: Die psychologische Betrachtungsweise: Ein Fenster zur Seele  
 ---
