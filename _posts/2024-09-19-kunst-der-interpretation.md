@@ -1,6 +1,5 @@
-
 ---
-title: Die Kunst der Interpretation: Wenn Worte zu Waffen werden  
+title: Die Kunst der Interpretation, Wenn Worte zu Waffen werden  
 ---
 Es ist ein Phänomen, das uns alle schon einmal begegnet ist: **Eine Äußerung, die eigentlich neutral gemeint war, wird als persönlicher Angriff aufgefasst.** Ein harmloser Kommentar löst eine Kettenreaktion aus, die in einer heftigen Auseinandersetzung endet. Was steckt hinter dieser oft irrational erscheinenden Reaktion?
 
