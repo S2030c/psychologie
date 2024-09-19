@@ -1,6 +1,5 @@
-
 ---
-title: Die psychologische Betrachtungsweise: Ein Fenster zur Seele  
+title: Die psychologische Betrachtungsweise, Ein Fenster zur Seele  
 ---
 Die Psychologie, als Wissenschaft vom Erleben und Verhalten, bietet uns einen einzigartigen Zugang zum **Verständnis des menschlichen Wesens**. Sie lädt uns ein, über die äußere Erscheinung hinauszuschauen und in die **Tiefen der menschlichen Psyche einzutauchen**. Die **psychologische Betrachtungsweise** ermöglicht es uns, nicht nur das Verhalten anderer, sondern auch unser eigenes besser zu **verstehen** und zu **erklären**.
 
