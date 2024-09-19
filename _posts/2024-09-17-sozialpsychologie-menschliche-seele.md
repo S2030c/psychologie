@@ -1,6 +1,5 @@
-
 ---
-title: Die Sozialpsychologie: Ein Blick in die menschliche Seele in Gesellschaft  
+title: Die Sozialpsychologie, Ein Blick in die menschliche Seele in Gesellschaft  
 ---
 Die Sozialpsychologie, als Teilgebiet der Psychologie, befasst sich mit dem **Zusammenspiel zwischen Individuum und Gesellschaft**. Sie untersucht, **wie soziale Einflüsse unser Denken, Fühlen und Handeln prägen**. Dabei rückt sie nicht nur das **Verhalten einzelner Personen** in den Fokus, sondern auch die **Dynamik von Gruppen** und die **Prozesse**, die in **sozialen Interaktionen** ablaufen.
 
