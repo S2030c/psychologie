@@ -1,3 +1,4 @@
+
 ---
 title: Die Sozialpsychologie: Ein Blick in die menschliche Seele in Gesellschaft  
 ---
