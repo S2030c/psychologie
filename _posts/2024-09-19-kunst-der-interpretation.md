@@ -1,5 +1,6 @@
+---
 title: Die Kunst der Interpretation: Wenn Worte zu Waffen werden  
-—  
+---
 Es ist ein Phänomen, das uns alle schon einmal begegnet ist: **Eine Äußerung, die eigentlich neutral gemeint war, wird als persönlicher Angriff aufgefasst.** Ein harmloser Kommentar löst eine Kettenreaktion aus, die in einer heftigen Auseinandersetzung endet. Was steckt hinter dieser oft irrational erscheinenden Reaktion?
 
 Das *persönliche Nehmen von Aussagen*, die gar nicht persönlich gemeint waren, ist ein komplexes Phänomen, das durch eine Vielzahl von Faktoren beeinflusst wird. Zum einen spielt unsere individuelle Persönlichkeit eine entscheidende Rolle. Menschen mit einem geringen Selbstwertgefühl neigen eher dazu, Kritik als persönlichen Angriff zu werten. Auch unsere Stimmung kann unsere Interpretation von Aussagen beeinflussen. Sind wir bereits gereizt oder gestresst, sind wir anfälliger für Fehlinterpretationen.
