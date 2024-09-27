@@ -19,4 +19,4 @@ Die Resonanztheorie, wie sie beispielsweise von Hartmut Rosa entwickelt wurde, b
 
 **Die soziale Resonanz ist ein komplexes Phänomen, das von zahlreichen Faktoren beeinflusst wird.** Dazu gehören kulturelle Unterschiede, persönliche Erfahrungen, aber auch die aktuelle gesellschaftliche Situation. Dennoch ist sie ein universelles menschliches Bedürfnis, das uns alle **verbindet**. Indem wir uns der **Bedeutung der sozialen Resonanz** bewusst werden, können wir gezielt daran arbeiten, unsere **Beziehungen zu anderen Menschen** zu stärken und eine **Gesellschaft zu gestalten**, in der Resonanz gelebt wird.
 
-**2024-09-26**
+2024-09-26
