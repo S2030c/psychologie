@@ -1,5 +1,5 @@
 ---  
-title: Die innere Mitte finden - Ein Gleichgewicht der Seele
+title: Die innere Mitte finden und bewahren - das Gleichgewicht der Seele
 ---
 Die Suche nach der inneren Mitte ist ein universelles menschliches Bedürfnis. Sie spiegelt das tiefe Verlangen wider, ein **Gefühl von Harmonie, Ausgeglichenheit und Zufriedenheit** zu erlangen. In einer Welt voller Reize, Anforderungen und ständiger Veränderung ist es jedoch oft eine Herausforderung, dieses **Gleichgewicht zu finden und zu bewahren.**
 
